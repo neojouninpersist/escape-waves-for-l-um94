@@ -1,4 +1,4 @@
-
+exclusive Scripts for escape waves for lucky blocks is the best escape waves for lucky blocks Script, featuring private server access and anti-ban.
 
 
 
